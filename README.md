@@ -4,10 +4,21 @@
 [![](https://img.shields.io/badge/%E6%8E%98%E9%87%91-sylvie233-green)](https://juejin.cn/user/2678852843209111)
 [![](https://img.shields.io/badge/%E4%B8%AA%E4%BA%BA%E5%8D%9A%E5%AE%A2-sylvie233-green)](http://www.sylvie233.com/)
 
-
+<br />
+<br />
+<br />
 
 ## 𝑰 ❤️ Visual Novel!
 
 一名视觉小说爱好者~~~
 
-<br>
+<br />
+<br />
+<br />
+
+## Me
+1. Sylvie233/Sylvie
+2. 数学教师
+3. Web全栈
+4. 客户端开发
+5. 英语教师
